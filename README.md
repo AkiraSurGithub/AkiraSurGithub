@@ -10,8 +10,8 @@ Welcome in AkiraCorp
 
 ## 📞 Contact me
 
-[Discord](https://www.discord.gg/3t2568W)
-[Twitter](https://twitter.com/oldmodz95)
+[Discord]: AKIRA.#1854
+[Twitter](https://twitter.com/AkiraDemon_)
 <br>
 [YouTube (Server Private)](https://exotique.fr2.quickconnect.to/?launchApp=SYNO.SDS.VideoStation.AppInstance#!libOldModz95/N4IgNglgRgTghjAniAXCAFgewLYFMD6AbhACa6YC0A7CADQgDGcALrgOaZKohxhh0gADnDa5UARgC+QA)
 <p>Username: ytb <br>
