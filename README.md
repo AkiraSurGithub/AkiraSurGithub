@@ -7,7 +7,7 @@
 
 - 🔭 I’m currently working on **nothing**
 
-- 📫 How to reach me **akiraprooff@gmail.com**
+- 📫 How to reach me **AKIRA.#1854**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
